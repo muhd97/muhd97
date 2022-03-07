@@ -5,6 +5,6 @@ I'm Zain. I'm a Final Year Computer Science Student at National University of Si
 
 - 💬 Ask me about: tech, memes, investing
 - 😄 Pronouns: He/Him
-- 😃 Availability: 15 January 2022
+- 😃 Availability: 04 July 2022
 - 🎓 Graduation: May 2022
 -----
